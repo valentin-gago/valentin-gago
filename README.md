@@ -7,10 +7,7 @@ Soy una persona apasionada de la tecnologia sobre todo de la programacion y de t
 
 
 
-![VALENTÌN GAGO](https://github.com/valentin-gago/valentin-gago/assets/108815363/8cee27d9-e31c-40b6-8027-fa1f4ed5ca7d
-)
-
-
+![VALENTÌN GAGO (1)](https://github.com/valentin-gago/valentin-gago/assets/108815363/0de2a5e2-b2bc-4b9d-be86-9342377215fc)
 
 
 
