@@ -1,7 +1,7 @@
 ### Hola 👋
 
-<!--
-**valentin-gago/valentin-gago** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Soy una persona apasionada de la tecnologia sobre todo de la programacion y de todo lo que se puede llegar a conseguir con esfuerzo y dedicacion
+
 
 Here are some ideas to get you started:
 
